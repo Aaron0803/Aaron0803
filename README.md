@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Aaron0803
 - 👀 I’m interested in ...well everything;
-- 🌱 I’m currently learning ...something that is  hopefulyy....
 - 💞️ I’m looking to collaborate on ...moreik 
 - 📫 How to reach me ...nahh
 - ⚡ Fun fact: ...
